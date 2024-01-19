@@ -1,4 +1,6 @@
-[插件交流，请加QQ Group: 556223772，有专人答疑，稳定持久更新多年，有大批志同道合的小伙伴在这里一起玩耍] 
+[插件交流，请加tg ([https://t.me/wechatchums](https://t.me/wechatchums)) 或 QQ Group: 741300562，有专人答疑，稳定持久更新多年，有大批志同道合的小伙伴在这里一起玩耍] 
+
+### Telegram: [https://t.me/wechatchums](https://t.me/wechatchums)
 
 ## 应用简介
 
